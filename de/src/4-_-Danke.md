@@ -25,10 +25,10 @@ Habt ihr Fragen, Kommentare, Hinweise, Kritik, Anmerkungen? Auch dafür danken e
 -   Reinhold ([Reinhold.Guthier@t-online.de](mailto:Reinhold.Guthier@t-online.de))
 -   Hanne Fritz ([info@fritzcoaching.de](mailto:info@fritzcoaching.de))
 -   Herr Harald "Hardy" Lauritsch ([harald.lauritsch@gmx.de](mailto:harald.lauritsch@gmx.de))
+-   Nicole ([nicole.schwippl@siemens.com](mailto:nicole.schwippl@siemens.com))
 
 
-
-
+Kann ich jetzt editieren
   
 
 **KEEP CALM & LEARN ON! ... Mindfully ...**
